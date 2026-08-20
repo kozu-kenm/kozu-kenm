@@ -1,11 +1,5 @@
+<img width="360" height="364" alt="37a7c64fb078723162a799ad4ebe2ab6" src="https://github.com/user-attachments/assets/3a1b4445-855b-458e-a936-e8cfde9f0788" />
 
-
-<img width="1627" height="721" alt="xdhgef" src="https://github.com/user-attachments/assets/2f47ad95-226c-465d-98c7-d785767bcc6f" />
-
-![yellow](https://img.shields.io/badge/hi-welcome-ff69b4)
-
-![pink](https://img.shields.io/badge/free-c+h!-ff69b4)
-<img width="1627" height="721" alt="j2le6t" src="https://github.com/user-attachments/assets/1fbb1a5b-8856-4eb9-b822-975fdd4d8e5b" />
 
 [strawpage](https://straw.page)      [roblox](https://www.roblox.com/users/5867231962/profile)                [rentry](https://rentry.co)          [ata](https://google.com)        [main?](https://github.com/vanifuyu)          [other me (old oikawa gh)](https://github.com/shadyykkh) [my suo acc lmao](https://github.com/SU0-HAY4T0)
 
